@@ -6,5 +6,5 @@
 ![17690060211445717507371955853851](https://github.com/user-attachments/assets/d7a1decc-d7d2-4f9a-b0fd-7e0bf5cb4497)
 
 ## I love my silly boy, he's like my son c:
-### 🎧 Currently listening to
-[![Spotify](https://spotify-github-profile.kittinanx.com/api/view?uid=TU_SPOTIFY_ID&theme=compact)](https://open.spotify.com)
+🎧 Currently listening to  
+**[Awkward — Tyler, The Creator](https://open.spotify.com/search/Awkward%20Tyler%20The%20Creator)**
