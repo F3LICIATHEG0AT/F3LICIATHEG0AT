@@ -1,5 +1,5 @@
-## HEWOOO I'M TOPZY
-## My comfort character:
+# HEWOOO I'M TOPZY
+# My comfort character:
 
 ![17690060211445717507371955853851](https://github.com/user-attachments/assets/d7a1decc-d7d2-4f9a-b0fd-7e0bf5cb4497)
 
