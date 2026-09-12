@@ -1,4 +1,4 @@
-# My legal  name is Samuel like this dumb boy that I love so much,+18 years old.#
+# My legal  name is Samuel like this dumb boy that I love so much,+18 years old. #
 ## my comfort character is: ##
 <img width="1280" height="372" alt="17690072275168748278073009474908" src="https://github.com/user-attachments/assets/05c51c4b-e49d-4237-a4e6-15e1a2fd738f" />
 
