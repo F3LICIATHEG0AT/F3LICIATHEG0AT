@@ -8,4 +8,4 @@
 🎧 Currently listening to  
 **[Awkward — Tyler, The Creator](https://open.spotify.com/search/Awkward%20Tyler%20The%20Creator)**
 
-<img src="(https://dl.glitter-graphics.com/pub/3770/3770260x0gyhibfxf.gif)">
+<img src="https://dl.glitter-graphics.com/pub/3770/3770260x0gyhibfxf.gif">
